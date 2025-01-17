@@ -16,11 +16,9 @@ We value your trust in providing your basic personal information for login purpo
 Changes to This Privacy Policy
 We may update this Privacy Policy periodically to reflect changes in our services or legal requirements. You are advised to review this page occasionally for updates.
 
-
-
-
 ---------------------------------------------
 Contact Us
-If you have any questions or concerns about this Privacy Policy, please contact us:
+If you have any questions or concerns about this Privacy Policy,
+please contact us:
 Email: iaibrahimansari7@gmail.com
 Phone: +91 9326318908
